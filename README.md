@@ -12,4 +12,5 @@ Hi, I'm @tippytiptip
 Hi, I am interested in a job using this system.
 I'm currently learning about art.
 I'm looking to collaborate on projects concerning art and art projects - specifically drawing(s).
+I'm also into textiles, photography, sculpture, ceramics, 3-D design, and graphic design.
 How to reach me - my email tyra17711@gmail.com\
